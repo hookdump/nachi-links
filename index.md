@@ -6,6 +6,7 @@
 - [Character and Dispositions](https://www.youtube.com/watch?v=IdjIPkgDX9A&list=PLqK-cZS_wviDVdjqlIhVSIXsI6KFPtdz9&index=5)
 - [Motor Skill and Moral Virtue](https://www.youtube.com/watch?v=hluP_MBXZTo&list=PLqK-cZS_wviDVdjqlIhVSIXsI6KFPtdz9&index=13)
 - [Justice](https://www.youtube.com/watch?v=kBdfcR-8hEY&list=PL30C13C91CFFEFEA6&index=1)
+- [Human Behavioral Biology](https://www.youtube.com/watch?v=NNnIGh9g6fA&list=PL848F2368C90DDC3D)
 - [Holmes: A History of Philosophy](https://www.youtube.com/watch?v=Yat0ZKduW18&list=PL9GwT4_YRZdBf9nIUHs0zjrnUVl-KBNSM)
 - [Sugrue: Greek and Roman](https://www.youtube.com/watch?v=mT9gmv8RZ2I&list=PLrbDdGg7Qy8iQOAQSCJwrIl2s4jej4VCD)
 - [Sugrue: Early Modern](https://www.youtube.com/watch?v=sKfn_wuO_mI&list=PLrbDdGg7Qy8iWbCldzbEo8L-hNj9gvn3E)
